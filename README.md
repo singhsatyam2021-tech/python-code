@@ -1,1 +1,1 @@
-prectic code
+practic code
